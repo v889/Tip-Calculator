@@ -1,0 +1,1 @@
+Tips is given to a person for his / her service, if his / her service is acceptable or satisfying. For instance, waiters serve us in restaurants. We can provide an additional amount for their service along with the bill amount. You may get confused on how much to pay as a tip to the servers. This calculator is an tool that's helps you calculate the tip amount you can pay.
